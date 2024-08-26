@@ -8,4 +8,3 @@ Estou usando esse espaço para me desenvolver e conpartilhar projetos.
 você pode entrar em contato comigo por email
 00001101962707sp@al.educacao.sp.gov.br
 
-https://tenor.com/pt-BR/view/cavalinho-corinthians-gif-26561665
